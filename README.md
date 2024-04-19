@@ -1,1 +1,1 @@
-# layout_landing__Spiegel-Wirtschaft
+Landing Spiegel-Wirtschaft  робився на замовлення був сворений самостійно приблизно за пів-дня.
